@@ -1,1 +1,2 @@
-ana ima banani
+ana ima banani 
+i jabolka
